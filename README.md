@@ -7,4 +7,4 @@ Please check out the trailers or videos that have been made over the months here
 
  - Ro!Qube status 1 year ago: https://www.youtube.com/watch?v=G1YoBnpXpdM
 
-Please read the README.MD
+Please read the README.MD -- dude this is the readme 💀
